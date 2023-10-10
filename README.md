@@ -3,7 +3,7 @@
 
 - 📫 How to reach me **korelskaya2000@mail.ru**
 - 📄 Know about my experiences [**Habr Career (Ru)**](https://habr.com/ru/articles/721940/)
-- 🌍 I speak Russian (native), English (B2), c (B1+)
+- 🌍 I speak Russian (native), English (B2), Spanish (B1+)
 
 ### Connect with me:
 <p align="left">
